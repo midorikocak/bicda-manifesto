@@ -17,8 +17,8 @@ Bilişim Çalışanları Manifestosu
 
 8. İşverenler çalışanlarının sağlığından ödün vermeyecektir. İş takip yazılımları ve kamera sistemleriyle, çalışanların insanlık dışı hedeflere ulaşmaları için zorlanmaları eziyettir.
 
-9. Her türlü mobbing, psikolojik taciz, zorlama, dayatma, baskı, dışlama, ayrımcılık ahlaksızlıktır. Ne işveren, ne de iverenle işbirliği içinde olan başka bir kimsenin kimseye mobbing, zorbalık yapmaya hakkı yoktur.
+9. Her türlü mobbing, psikolojik taciz, zorlama, dayatma, baskı, dışlama, ayrımcılık ahlaksızlıktır. Ne işveren, ne de işverenle işbirliği içinde olan başka bir kimsenin kimseye mobbing, zorbalık yapmaya hakkı yoktur.
 
-Bilişim Çalışanları Olarak Haklarımızın farkındayız, eziyete, zorbalığaü, sömürüye ve hırsızlığa karşıyız!
+Bilişim Çalışanları Olarak Haklarımızın farkındayız, eziyete, zorbalığa, sömürüye ve hırsızlığa karşıyız!
 
 Değeri, emek verenler yaratır!
